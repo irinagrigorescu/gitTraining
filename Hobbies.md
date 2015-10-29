@@ -10,3 +10,4 @@ Reading List by Irina
 2. Computer Networks by Andrew Tanenbaum
 
 ## Misc
+1. Lala by Lena Mena
