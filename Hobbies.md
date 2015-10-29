@@ -1,4 +1,4 @@
-Reading List by Irina
+Reading List by Irena
 =====================
 
 ## Fiction
