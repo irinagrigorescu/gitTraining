@@ -1,4 +1,4 @@
-Reading List by Irena
+Reading List by Irena Grigorescu
 =====================
 
 ## Fiction
